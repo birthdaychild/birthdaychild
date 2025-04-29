@@ -29,11 +29,11 @@
 
 **Idle: “Afk and I will NOT read ur messages.”**
 
-**Do not Disturb: “Busy, probably doing job or doing something irl.”
+**Do not Disturb: “Busy, probably doing job or doing something irl.”**
 
 **Looking for Chat: “I really need someone to talk to me!”**
 
-**Looking for Roleplay: “no.”
+**Looking for Roleplay: “no.”**
 
 **Offline: “hiding.”**
 
