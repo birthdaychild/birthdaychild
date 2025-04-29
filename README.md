@@ -47,6 +47,8 @@
 
 **Dni: “Do not Interact, well you can tell I'm really pïssed off. And I mean it. So I might be aggressive a little if you interact.”**
 
+**Dnt: “Do not touch, I'm never on this.”
+
 **Iwc: “Interact with Caution: Not in a good mood (a bit).”**
 
 **Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
