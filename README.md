@@ -39,27 +39,27 @@
 
 # **slags**
 
-**c+h✅: “Cuddle+Hug, This is VERY rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling VERY upset or clingy.”**
+**C+H✅: “Cuddle+Hug, This is VERY rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling VERY upset or clingy.”**
 
-**int: “Interact, I want someone to interact with me.”**
+**Int: “Interact, I want someone to interact with me.”**
 
-**w2i: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”**
+**W2I: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”**
 
-**dni: “Do not interact, well you can tell I'm really pïssed off. And I mean it. So I might be aggressive a little if you interact.”**
+**Dni: “Do not Interact, well you can tell I'm really pïssed off. And I mean it. So I might be aggressive a little if you interact.”**
 
-**iwc: “Interact with caution: Not in a good mood (a bit).”**
+**Iwc: “Interact with Caution: Not in a good mood (a bit).”**
 
-**iwec: “Interact with extreme caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
+**Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
 
 **upset: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
-**sa: “Semi afk, I'm just multitasking.”**
+**Sa: “Semi Afk, I'm just multitasking.”**
 
-**nv: “Non verbal, Won't talk at all.”**
+**Nv: “Non Verbal, Won't talk at all.”**
 
-**sv: “Semi verbal, 50/50 of talking and not..”**
+**Sv: “Semi Verbal, 50/50 of talking and not..”**
 
-**v: “I'll talk A LOT here.”**
+**V: “I'll Talk A LOT here.”**
 
 
 
