@@ -25,7 +25,7 @@
 
 ## ***STATUS***
 
-**Online: “Mostly, I don't use status but I will from now on, as I say, I'm able to talk 50/50, I may be semi afk, who knows, God does.”
+**Online: “Mostly, I don't use status but I will from now on, as I say, I'm able to talk 50/50, I may be semi afk, who knows, God does.”**
 
 **Idle: “Afk and I will NOT read ur messages.”**
 
