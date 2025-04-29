@@ -51,13 +51,13 @@
 
 **Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
 
-**upset: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
+**Upset: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
 **Sa: “Semi Afk, I'm just multitasking.”**
 
-**Nv: “Non Verbal, Won't talk at all.”**
+**Nv: “Non Verbal, won't talk at all.”**
 
-**Sv: “Semi Verbal, 50/50 of talking and not..”**
+**Sv: “Semi Verbal, 50/50 of talking and not.”**
 
 **V: “I'll Talk A LOT here.”**
 
