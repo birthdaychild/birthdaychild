@@ -41,19 +41,19 @@
 
 **c+h✅: “Cuddle+Hug, This is VERY rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling VERY upset or clingy.”**
 
-**int: “Interact, I want someone to interact with me.”
+**int: “Interact, I want someone to interact with me.”**
 
-**w2i: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”
+**w2i: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”**
 
-**dni: “Do not interact, well you can tell I'm really pïssed off. And I mean it. So I might be aggressive a little if you interact.”
+**dni: “Do not interact, well you can tell I'm really pïssed off. And I mean it. So I might be aggressive a little if you interact.”**
 
-**iwc: “Interact with caution: Not in a good mood (a bit).”
+**iwc: “Interact with caution: Not in a good mood (a bit).”**
 
-**iwec: “Interact with extreme caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”
+**iwec: “Interact with extreme caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
 
-**upset**: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”
+**upset: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
-**sa: “Semi afk, I'm just multitasking.”
+**sa: “Semi afk, I'm just multitasking.”**
 
 **nv: “Non verbal, Won't talk at all.”**
 
