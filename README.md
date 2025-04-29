@@ -61,9 +61,9 @@
 
 **V: “I'll Talk A LOT here.”**
 
-**Mv: “My Version.”
+**Mv: “My Version.”**
 
-**Ma: “My Alternative Universe.”
+**Ma: “My Alternative Universe.”**
 
 
 
