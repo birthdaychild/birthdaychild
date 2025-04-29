@@ -39,7 +39,7 @@
 
 # **slags**
 
-**C+H✅: “Cuddle+Hug, This is VERY rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling VERY upset or clingy.”**
+**C+H✅: “Cuddle+Hug, This is VERY rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling** ***VERY*** **upset or clingy.”**
 
 **Int: “Interact, I want someone to interact with me.”**
 
@@ -51,7 +51,7 @@
 
 **Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
 
-**Upset: “This is also VERY rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
+**Upset: “This is also** ***VERY*** **rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
 **Sa: “Semi Afk, I'm just multitasking.”**
 
