@@ -51,7 +51,7 @@
 
 **Iwc: “Interact with Caution: Not in a good mood (a bit).”**
 
-**Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lung at you for interacting dw. Just be careful with what you say.”**
+**Iwec: “Interact with Extreme Caution, I'm not feeling in a good mood at all, mostly very mad, I won't lunge at you for interacting dw. Just be careful with what you say.”**
 
 **Upset: “This is also** ***VERY*** **rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
