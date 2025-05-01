@@ -64,7 +64,7 @@
 
 **Sv: “Semi Verbal, 50/50 of talking and not.”**
 
-**V: “Verbal, I'll Talk A LOT here.”**
+**V: “Verbal, I'll Talk A LOT here.” (Rarely on this)**
 
 **Mv: “My Version.”**
 
