@@ -5,11 +5,11 @@
 ***
 ## ***HOW TO INT***
 
-**“I prefer if you walk up to me and try sharing interest, mostly I don't allow the "Hi, can we be friends?" anymore, sorry but it isn't my problem. If we know eachother and you want to talk I prefer you walk up to me, because I am NOT going to walk up to you and talk to you, unless you tell me to walk up to you, I will do.”** 
+**“I prefer if you walk up to me and try sharing interest, mostly I don't allow the "Hi, can we be friends?" anymore, sorry but it isn't my problem. If we know eachother and you want to talk I prefer you walk up to me, because I am NOT going to walk up to you and talk to you, unless you tell me to walk up to you, I will do.” (i dont bite!)** 
 
 ## ***DNI LIST***
 
-**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes.”**
+**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes. Enemies, you can gossip all the time I don't care and you're just wasting your time talking about me because I bet more people like to hear about me more than you so fck off enemies.”**
 
 ## ***THINGS TO NOT TALK AROUND ME***
 
