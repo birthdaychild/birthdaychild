@@ -70,17 +70,30 @@
 
 **Mau: “My Alternative Universe.”**
 
-# ***MY AFTONFAMILY AU***
+# ***MY PAST AFTONFAMILY AU***
 
 **William Miller Afton: “Just normal lore of him, British.”**
 
-**Mrs Afton/Rosalina Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), American”**
+**Mrs Afton/Rosalina Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), Love william, American”**
 
 **Michael Miller Afton: “He torments Carli more than the lore, Toxic, Yorkshire”**
 
-**Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, Loves icecream, American”**
+**Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, loves icecream, wants dad to love her drawings, American”**
 
-**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now, Australian/aussieboy, Idiot.”**
+**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now<--idcifiputithereandnotonthepresentone, Australian/aussieboy, Idiot.”**
+
+***
+# ***MY AFTONFAMILY AU***
+
+**William Miller Afton: stinky, clingy for Mrs afton (maybe), British.”**
+
+**Mrs Afton/Rosalina Miller Afton: grumpy sometimes, hates william (depends on her mood.), American.
+
+**Michael Miller Afton: “Wants Carli to forgive him, Yorkshire”**
+
+**Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, American”**
+
+**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Idiot.”**
 
 (DO NOT get inspired by this, or copy it.)
 
