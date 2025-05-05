@@ -80,7 +80,7 @@
 
 **Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, Loves icecream, American”**
 
-**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now, Austrlian/aussieboy, Idiot.”***
+**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now, Australian/aussieboy, Idiot.”***
 
     Thank you for reading!!
 
