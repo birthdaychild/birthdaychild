@@ -80,7 +80,7 @@
 
 **Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, loves icecream, wants dad to love her drawings, American”** ***Birthday: April 9th 1977***
 
-**Carli Miller Afton: “Huge crybaby, sensitive, Loves fredbearplush, Hates his nightmares, Australian/aussieboy, Idiot.”** ***Birthday: Aug 29th 1976***
+**Carli Miller Afton: “Huge crybaby, sensitive, Loves fredbearplush, Hates his nightmares, Australian/aussieboy, Idiot.”** ***Birthday: August 29th 1976***
 
 ***
 # ***MY AFTONFAMILY AU***
@@ -91,7 +91,7 @@
 
 **Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”** ***Birthday: March 13th 1970***
 
-**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot. Oh and when he went in a coma after he died, he had a coma and his nightmares kept looping. Also saw Elizabeth death.”** ***Birthday: Aug 29th 1976*** 
+**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot. Oh and when he went in a coma after he died, he had a coma and his nightmares kept looping. Also saw Elizabeth death.”** ***Birthday: August 29th 1976*** 
 
 **Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, Died worse than game but won't say, American”** ***Birthday: April 9th 1977***
 
