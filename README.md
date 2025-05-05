@@ -74,7 +74,7 @@
 
 **William Miller Afton: “Just normal lore of him, British.”**
 
-**Mrs Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), American”**
+**Mrs Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), American”**
 
 **Michael Miller Afton: “He torments Carli more than the au, Toxic, Yorkshire”**
 
