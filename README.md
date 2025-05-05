@@ -80,20 +80,20 @@
 
 **Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, loves icecream, wants dad to love her drawings, American”**
 
-**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now<--idcifiputithereandnotonthepresentone, Australian/aussieboy, Idiot.”**
+**Carli Miller Afton: “Huge crybaby, sensitive, Loves fredbearplush, Hates his nightmares, Australian/aussieboy, Idiot.”**
 
 ***
 # ***MY AFTONFAMILY AU***
 
-**William Miller Afton: “stinky, clingy for Mrs afton (maybe), British.”**
+**William Miller Afton: “stinky, clingy for Mrs afton (maybe), British.”** ***Birthday: November 14th 1947***
 
-**Mrs Afton/Rosalina Miller Afton: “grumpy sometimes, hates william (depends on her mood.), American.”**
+**Mrs Afton/Rosalina Miller Afton: “grumpy sometimes, hates william (depends on her mood.), American.”** ***Birthday: February 14th 1949***
 
-**Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”**
+**Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”** ***Birthday: March 13th 1970
 
-**Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, Died worse than game but won't say, American”**
+**Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, Died worse than game but won't say, American”** ***Birthday: April 9th 1977***
 
-**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot.”**
+**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot. Oh and when he went in a coma after he died, he had a coma and his nightmares kept looping.”** ***Birthday: Aug 29th 1976***
 
 (DO NOT get inspired by this, or copy it.)
 
