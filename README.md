@@ -69,7 +69,9 @@
 **Mv: “My Version.”**
 
 **Mau: “My Alternative Universe.”**
-
+***
+![Image](https://github.com/user-attachments/assets/15187956-3628-4530-b5f9-16d95284613c)0
+***
 # ***MY PAST AFTONFAMILY AU***
 
 **William Miller Afton: “Just normal lore of him, British.”** ***Birthday: November 14th 1947***
