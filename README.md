@@ -70,8 +70,17 @@
 
 **Mau: “My Alternative Universe.”**
 
+# ***MY AFTONFAMILY AU***
 
+**William Miller Afton: “Just normal lore of him, British.”**
 
+**Mrs Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), American”**
+
+**Michael Miller Afton: “He torments Carli more than the au, Toxic, Yorkshire”**
+
+**Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, Loves icecream, American”**
+
+**Carli Miller Afton: “Huge crybaby, sensitive, and died way worse than the actual game and kinda possess golden freddy now, Austrlian/aussieboy, Idiot.”***
 
     Thank you for reading!!
 
