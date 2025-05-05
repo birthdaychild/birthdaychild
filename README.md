@@ -89,11 +89,11 @@
 
 **Mrs Afton/Rosalina Miller Afton: grumpy sometimes, hates william (depends on her mood.), American.
 
-**Michael Miller Afton: “Wants Carli to forgive him, Yorkshire”**
+**Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”**
 
-**Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, American”**
+**Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, Died worse than game but won't say, American”**
 
-**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Idiot.”**
+**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot.”**
 
 (DO NOT get inspired by this, or copy it.)
 
