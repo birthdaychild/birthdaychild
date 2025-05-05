@@ -76,7 +76,7 @@
 
 **Mrs Afton/Rosalina Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), American”**
 
-**Michael Miller Afton: “He torments Carli more than the au, Toxic, Yorkshire”**
+**Michael Miller Afton: “He torments Carli more than the lore, Toxic, Yorkshire”**
 
 **Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, Loves icecream, American”**
 
