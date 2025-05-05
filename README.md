@@ -72,15 +72,15 @@
 
 # ***MY PAST AFTONFAMILY AU***
 
-**William Miller Afton: “Just normal lore of him, British.”**
+**William Miller Afton: “Just normal lore of him, British.”** ***Birthday: November 14th 1947***
 
-**Mrs Afton/Rosalina Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), Love william, American”**
+**Mrs Afton/Rosalina Miller Afton: “Normal lore of her (if there is) she just died in a carcrash(notbrutallymurderedbywilliam), Love william, American”** ***Birthday: February 14th 1949***
 
-**Michael Miller Afton: “He torments Carli more than the lore, Toxic, Yorkshire”**
+**Michael Miller Afton: “He torments Carli more than the lore, Toxic, Yorkshire”** ***Birthday: March 13th 1970***
 
-**Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, loves icecream, wants dad to love her drawings, American”**
+**Elizabeth Miller Afton: “Not much to put here, but spoiled and childish, cares about carli 50/50, loves icecream, wants dad to love her drawings, American”** ***Birthday: April 9th 1977***
 
-**Carli Miller Afton: “Huge crybaby, sensitive, Loves fredbearplush, Hates his nightmares, Australian/aussieboy, Idiot.”**
+**Carli Miller Afton: “Huge crybaby, sensitive, Loves fredbearplush, Hates his nightmares, Australian/aussieboy, Idiot.”** ***Birthday: Aug 29th 1976***
 
 ***
 # ***MY AFTONFAMILY AU***
@@ -89,11 +89,12 @@
 
 **Mrs Afton/Rosalina Miller Afton: “grumpy sometimes, hates william (depends on her mood.), American.”** ***Birthday: February 14th 1949***
 
-**Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”** ***Birthday: March 13th 1970
+**Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”** ***Birthday: March 13th 1970***
+
+**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot. Oh and when he went in a coma after he died, he had a coma and his nightmares kept looping. Also saw Elizabeth death.”** ***Birthday: Aug 29th 1976*** 
 
 **Elizabeth Miller Afton: “Sassy, mean, and hates icecreams, Died worse than game but won't say, American”** ***Birthday: April 9th 1977***
 
-**Carli Miller Afton: “Kinda forgot about most stuff, hangs out with cassidy a lot, doesn't even know what Michael did to him, Cassidy gave him a vengeful personality, Australian/aussieboy, Probably died very disturbing but it's too risky to say here, Idiot. Oh and when he went in a coma after he died, he had a coma and his nightmares kept looping.”** ***Birthday: Aug 29th 1976***
 
 (DO NOT get inspired by this, or copy it.)
 
