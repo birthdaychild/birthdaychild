@@ -85,9 +85,9 @@
 ***
 # ***MY AFTONFAMILY AU***
 
-**William Miller Afton: stinky, clingy for Mrs afton (maybe), British.”**
+**William Miller Afton: “stinky, clingy for Mrs afton (maybe), British.”**
 
-**Mrs Afton/Rosalina Miller Afton: grumpy sometimes, hates william (depends on her mood.), American.
+**Mrs Afton/Rosalina Miller Afton: “grumpy sometimes, hates william (depends on her mood.), American.”**
 
 **Michael Miller Afton: “Wants Carli to forgive him, Died worse than game but wont say, Yorkshire”**
 
