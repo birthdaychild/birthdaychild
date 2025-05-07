@@ -1,4 +1,4 @@
-## 𓂃 ࣪˖ ִֶཐི༏ཋྀ󠀮
+## **𓂃 ࣪˖ ִֶཐི༏ཋྀ󠀮**
 
 ***
 ![Image](https://github.com/user-attachments/assets/55680c04-bf7c-4b62-ab23-b7b2a59b9ce5)
@@ -41,7 +41,7 @@
 
 **C+H✅: “Cuddle+Hug, This is** ***VERY*** **rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling** ***VERY*** **upset or clingy. [allthough this will never happen.]”**
 
-**Int: “Interact, I want someone to interact with me>”**
+**Int: “Interact, I want someone to interact with me.”**
 
 **W2I: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”**
 
