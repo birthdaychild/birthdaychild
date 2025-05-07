@@ -35,13 +35,13 @@
 
 **Looking for Roleplay: “no.”**
 
-**Offline: “hiding.”**
+**Offline: “hiding or offline.”**
 
 # ***SLAGS***
 
-**C+H✅: “Cuddle+Hug, This is** ***VERY*** **rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling** ***VERY*** **upset or clingy.”**
+**C+H✅: “Cuddle+Hug, This is** ***VERY*** **rare, so mostly I might need someone to c+h me badly,(strangers can too) it only happens when I'm feeling** ***VERY*** **upset or clingy. [allthough this will never happen.]”**
 
-**Int: “Interact, I want someone to interact with me.”**
+**Int: “Interact, I want someone to interact with me>”**
 
 **W2I: “Whisper to Interact, mostly this is for strangers, but friends/fam can do too.”**
 
