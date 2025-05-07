@@ -9,7 +9,7 @@
 
 ## ***DNI LIST***
 
-**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes. Enemies, you can gossip all the time I don't care and you're just wasting your time talking about me because I bet more people like to hear about me more than you so fck off enemies. Overdramatic people <-- I'm not overdramatic if I'm mature, y'all js mistaking for no reason the hell? (REALLY) Immature people, yes I don't have to explain, block me please I beg you, Don't come in my life, Oversensitive <-- idrc but don't use me for no reason only for venting”**
+**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes. Enemies, you can gossip all the time I don't care and you're just wasting your time talking about me because I bet more people like to hear about me more than you so fck off enemies. Overdramatic people <-- I'm not overdramatic if I'm mature, y'all js mistaking for no reason the hell? (REALLY) Immature people, yes I don't have to explain, block me please I beg you, Don't come in my life, Oversensitive <-- idrc but don't use me for no reason only for venting, I'm not ur personal therapist and if you want me to be, That's gonna cost money.”**
 
 ## ***THINGS TO NOT TALK AROUND ME***
 
