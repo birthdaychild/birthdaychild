@@ -9,7 +9,7 @@
 
 ## ***DNI LIST***
 
-**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes. Enemies, you can gossip all the time I don't care and you're just wasting your time talking about me because I bet more people like to hear about me more than you so fck off enemies.”**
+**“ON @dirtytears, but I'll put more, people who are obtrusive, like bother random conversations they're not invited in, this makes me mad sometimes. Enemies, you can gossip all the time I don't care and you're just wasting your time talking about me because I bet more people like to hear about me more than you so fck off enemies. Overdramatic people <-- I'm not overdramatic if I'm mature, y'all js mistaking for no reason the hell?”**
 
 ## ***THINGS TO NOT TALK AROUND ME***
 
@@ -17,7 +17,7 @@
 
 ## ***PERSONALITY***
 
-**“I heard people talk about my personality a lot, I just wanna say I'm direct and honest with what I say, if you can't handle that, feel free to block or anything. So I'm not really that sensitive. And I am NOT going to change my personality and be the person everybody wants me to be, I'm going to be myself and love myself. Because why would I be the sad, depressed, insecure clingy friend? Never. Another thing, some people said they're scared of me (pretty much a lot) Do not fear me, stop saying ur fucking scared of me, fear Lord, The one and only our king, if ur still scared of me, Go on, be scared. Because I can't do anything with it anyway, it's your own issue not my issue./not yapping shit here, some people say this.”**
+**“I heard people talk about my personality a lot, I just wanna say I'm direct and honest with what I say, if you can't handle that, feel free to block or anything. So I'm not really that sensitive. And I am NOT going to change my personality and be the person everybody wants me to be, I'm going to be myself and love myself. Because why would I be the sad, depressed, insecure clingy friend? Never. Another thing, some people said they're scared of me (pretty much a lot) Do not fear me, stop saying ur fucking scared of me, fear Lord, The one and only our king, if ur still scared of me, Go on, be scared. Because I can't do anything about it anyway, it's your own issue not my issue./not yapping shit here, some people say this.”**
 
 ## ***WARNING***
 
