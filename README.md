@@ -17,7 +17,7 @@
 
 ## ***PERSONALITY***
 
-**“I heard people talk about my personality a lot, I just wanna say I'm direct and honest with what I say, if you can't handle that, feel free to block or anything. So I'm not really that sensitive. And I am NOT going to change my personality and be the person everybody wants me to be, I'm going to be myself and love myself. Because why would I be the sad, depressed, insecure clingy friend? Never. Do not fear me, stop saying ur fucking scared of me, fear Lord, The one and only our king, anyway if ur still scared of me, okay! Go on, be scared. Because I can't do anything with it anyway, it's your own issue not my issue.”**
+**“I heard people talk about my personality a lot, I just wanna say I'm direct and honest with what I say, if you can't handle that, feel free to block or anything. So I'm not really that sensitive. And I am NOT going to change my personality and be the person everybody wants me to be, I'm going to be myself and love myself. Because why would I be the sad, depressed, insecure clingy friend? Never. Do not fear me, stop saying ur fucking scared of me, fear Lord, The one and only our king, anyway if ur still scared of me, okay! Go on, be scared. Because I can't do anything with it anyway, it's your own issue not my issue./not yapping shit here, some people say this.”**
 
 ## ***WARNING***
 
