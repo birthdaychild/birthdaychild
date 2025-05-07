@@ -21,7 +21,7 @@
 
 ## ***WARNING***
 
-**“If ur in my blocklist, there might be reasons, You blocked me first, You're problematic or I feel uncomfortable around you, or you made my fof/fam uncomfortable.”**
+**“If ur in my blocklist, there might be reasons, You blocked me first, You're problematic or I feel uncomfortable around you, or you made my fof/fam uncomfortable. Another thing not really a warning but letting you know is, mostly I sit on any fandom with a fnaf skin on, and if you don't like it feel free to hide me, because I don't care, and I rather wear my fnaf skins on different fandoms, especially CRK.”**
 
 ## ***STATUS***
 
