@@ -69,10 +69,7 @@
 **Mv: “My Version.”**
 
 **Mau: “My Alternative Universe.”**
-***
-![Image](https://github.com/user-attachments/assets/0df87420-66a1-4634-8b7f-3c7d907066e8)
-masha and me💋💸/bestduofrdonotdeny
-***
+
 # ***MY PAST AFTONFAMILY AU***
 
 **William Miller Afton: “Just normal lore of him, British.”** ***Birthday: November 14th 1947***
