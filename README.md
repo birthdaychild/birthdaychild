@@ -55,8 +55,9 @@
 
 **Upset: “This is also** ***VERY*** **rare, I'm mostly not sensitive, so something must have clenches my heart realy badly.”**
 
-
 **Mad: “Similar as the Dni but just I won't lunge at you.”**
+
+**Tired: “Tired as hell.”**
 
 **Sa: “Semi Afk, I'm just multitasking.”**
 
@@ -69,6 +70,8 @@
 **Mv: “My Version.”**
 
 **Mau: “My Alternative Universe.”**
+
+**Moc: “My Original Character”**
 
 # ***MY PAST AFTONFAMILY AU***
 
